@@ -1,7 +1,7 @@
 # Introduccion
 # Sobre mi
 
-Hola, me llamo Gael Lucas Lorente.
+Hola, me llamo Gael Lucas Lorente.👋
 
 -👋 Hi, I’m @gaaellucaas
 - 👀 I’m 17 years old 
